@@ -40,7 +40,7 @@ Estoy profundizando en:
 ## 📫 Cómo Contactarme
 
 - **GitHub:** [anayansiv](https://github.com/anayansiv)
-- **LinkedIn:** [Anayasi Villa]([https://www.linkedin.com/in/tuperfil/](https://www.linkedin.com/in/anayansi-villa-8646392a2/)) 
+- **LinkedIn:** [Anayansi Villa](https://www.linkedin.com/in/anayansi-villa-8646392a2/)
 
 ## 🎯 Objetivos Futuros
 
